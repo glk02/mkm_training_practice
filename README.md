@@ -1,2 +1,4 @@
 # mkm_training_practice
-practice 
+practice hi this is glk signn 
+hello
+hai
